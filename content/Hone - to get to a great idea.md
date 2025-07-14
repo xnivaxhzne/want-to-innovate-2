@@ -1,0 +1,11 @@
+- Define what makes the idea so good.
+- Keep it simple what makes it special.
+- Keep the elements that were important to hold on to.
+- Dont drift from this unless you have very good reason to do so.
+- Simplify to its most important elements. Prune it back to its barest fundamental essence.
+- You have to have something you can describe in a sentence, draw on a napkin, explain in a lift journey.
+- [[Break it into little pieces]]
+- Completing something usually takes a lot more work then you were expecting,
+- Bring in people who can pull favours if you have to.
+- You have come this far and you have got a great idea. 
+- It would be shame if you turned it into something second rate.  

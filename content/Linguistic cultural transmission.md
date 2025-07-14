@@ -1,0 +1,1 @@
+Humans are born with the ability to learn/acquire language like an internal blueprint.

@@ -1,0 +1,1 @@
+You’ve got one life on this planet. Why not try to build something big? This is the beauty of Elon Musk, and why I think he inspires so many people, it’s just because he takes on really, really big audacious tasks. And he provides an example for people to think big.

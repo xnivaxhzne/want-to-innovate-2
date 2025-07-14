@@ -1,0 +1,1 @@
+The fundamental currency of our universe is Energy

@@ -1,0 +1,4 @@
+- "Technologists use science because that is the only way we understand how phenomena at the deeper layers work."
+- "that science not only uses technology, it builds itself from technology"
+- "Science without technology would be a weak science. It would be little more than the thought-based science of the Greeks."
+- Science and technology "co-evolve in a symbiotic relationship

@@ -1,0 +1,1 @@
+People first used stories to explain the world, before they began to think scientifically, making mythology older than [[Philosophy|philosophy]].

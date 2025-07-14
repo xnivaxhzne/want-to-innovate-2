@@ -1,0 +1,1 @@
+For other contexts, parts of DT, such as ideation or prototyping and testing might be useful on a standalone basis.

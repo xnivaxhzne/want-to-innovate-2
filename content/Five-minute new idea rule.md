@@ -1,0 +1,1 @@
+I think there ought to be a five-minute new idea rule, where no one could say anything negative about a new idea for at least five minutes after it has been suggested. I think we could save the many wonderful, creative ideas that get squashed this way. They are too fragile and ill-defined to endure criticism, but may nonetheless be valuable seeds.

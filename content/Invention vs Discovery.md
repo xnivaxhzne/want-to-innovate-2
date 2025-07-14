@@ -1,0 +1,2 @@
+- [[Discovery is recognising something that already exists]]
+- [[Invention is creating something totally new]]

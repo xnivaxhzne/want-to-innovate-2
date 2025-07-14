@@ -1,0 +1,1 @@
+Rhetoric is communication designed to have a persuasive effect on its audience.

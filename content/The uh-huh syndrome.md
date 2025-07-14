@@ -1,0 +1,1 @@
+This occurs when our fear of looking stupid outweighs our desire to understand.

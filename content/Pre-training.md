@@ -1,0 +1,1 @@
+One method of reducing intrinsic load is to develop specific prior knowledge before the key materials are presented.

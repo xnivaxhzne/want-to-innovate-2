@@ -1,0 +1,1 @@
+>  Elements arranged in a straight line or a smooth curve are perceived as a group, and are interpreted as being more related than elements not on the line or curve.

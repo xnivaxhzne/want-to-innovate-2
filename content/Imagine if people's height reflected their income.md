@@ -1,0 +1,4 @@
+**DON'T RAIN ON MY PARADE**
+
+Statistics about the distribution of income may not mean much, but imagine if people's height reflected their income. An hour-long parade of 38 million British income earners would start with several minutes of people with no height at all (people who, although working, are losing money), followed by more than a half-hour's worth of very short people (mostly women, pensioners, and teenagers). Only after forty minutes would people of average height appear, followed by a few people who would be ridiculously tall, towering 20 miles over the heads of those who started the parade.  
+_The Economist_ (12/26/87)

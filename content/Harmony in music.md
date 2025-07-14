@@ -1,0 +1,1 @@
+Harmony is when two or more notes are played together(stacked on top of each other). It adds depth to music.

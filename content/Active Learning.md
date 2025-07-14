@@ -1,0 +1,1 @@
+Encourage active engagement with the material through activities like quizzes, discussions, or problem-solving exercises. Active learning promotes deeper understanding and retention. But it consumes time due to the limited working memory.

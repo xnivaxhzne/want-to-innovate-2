@@ -1,0 +1,1 @@
+Predictable formats and layouts make it easier for users to navigate and understand content.

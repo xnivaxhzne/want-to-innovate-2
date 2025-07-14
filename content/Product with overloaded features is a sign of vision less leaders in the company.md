@@ -1,0 +1,1 @@
+Innovation expert [Robert Verganti](http://www.verganti.com/about/), argued that the company leaders dont have a clear idea about what they wanted to achieve. They either failed to grasp of what a product should be or  invited too many people to contribute to the end result, which also fosters confusion.

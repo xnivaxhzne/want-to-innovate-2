@@ -1,0 +1,1 @@
+To measure one's ability to `disocver ideas` for new ventures, products, or processes

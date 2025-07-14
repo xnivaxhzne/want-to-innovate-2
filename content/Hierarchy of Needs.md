@@ -1,0 +1,1 @@
+> In order for a design to be successful, it must meet people's basic needs before it can attempt to satisfy higher-level needs.

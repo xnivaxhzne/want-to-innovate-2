@@ -1,0 +1,2 @@
+The relationship between input and output is related in a linear fashion.
+The ratio of the input to output might be two times or ten times or even a thousand times. But the ratio is constant for each iteration. It doesn't increase or decrease as in non linear system.

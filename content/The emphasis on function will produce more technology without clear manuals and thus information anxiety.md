@@ -1,0 +1,1 @@
+The emphasis on function produces more technology without clear manuals that would enable people to operate it. The emphasis on function produces sophisticated information technology without clear manuals that would enable people to operate it.

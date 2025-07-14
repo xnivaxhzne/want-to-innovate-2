@@ -1,0 +1,1 @@
+> The use of pictorial images to improve the recognition and recall of signs and controls.

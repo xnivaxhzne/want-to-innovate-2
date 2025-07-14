@@ -1,0 +1,1 @@
+> [00:12:41](https://www.youtube.com/watch?v=4nm6f86QwTY&t=761s) I believe that I can't be overloaded by things that are understandable that I'm interested in.

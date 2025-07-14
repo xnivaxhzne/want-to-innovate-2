@@ -1,0 +1,2 @@
+- We can say that novel phenomena provide new technologies that uncover novel phenomena; or that novel technologies uncover new phenomena that lead to further technologies. "Either way, the collectives of technology and of known phenomena advance in tandem.
+- One last thing. It should be clear by now that ==technologies cannot exist without phenomena.== But the reverse is not true. 

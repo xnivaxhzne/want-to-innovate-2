@@ -1,0 +1,1 @@
+Else every time, you have intake each and every concepts freshly. Wow, language has so much power.

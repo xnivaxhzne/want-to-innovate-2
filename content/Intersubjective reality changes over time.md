@@ -1,0 +1,1 @@
+To study history means to watch the spinning and unravelling of these webs, and to realise that what seems to people in one age the most important thing in life becomes utterly meaningless to their descendants

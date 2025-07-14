@@ -1,0 +1,3 @@
+- Ability to continuously reproduce and maintain themselves, adapt to changes in the environment and evolve over time.
+- Auto - self. Poiesis - creation or production
+- Used in biology, psychology, philosophy and systems theory.

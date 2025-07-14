@@ -1,0 +1,1 @@
+Determining the meaning of something. It is not [[Understanding|understanding]]

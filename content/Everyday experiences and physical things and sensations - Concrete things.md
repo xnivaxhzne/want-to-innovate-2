@@ -1,0 +1,1 @@
+These are all concrete things when compared to [[Abstractions|abstractions]] like thoughts, feelings, emotions and ideas.

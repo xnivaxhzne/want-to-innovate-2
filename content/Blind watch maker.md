@@ -1,0 +1,3 @@
+The "Blind Watchmaker" is a metaphor coined by biologist Richard Dawkins to describe the process of natural selection. It suggests that, unlike a watchmaker who intentionally designs a watch with purpose and foresight, natural selection is an unguided, unconscious process that results in the complexity of life. 
+
+The term emphasises that evolution does not require a designer but can produce intricate and functional organisms through random mutations and the non-random process of selection.

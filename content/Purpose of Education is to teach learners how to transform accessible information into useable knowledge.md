@@ -1,0 +1,1 @@
+Usable knowledge - knowledge that is accessible for future decision-making

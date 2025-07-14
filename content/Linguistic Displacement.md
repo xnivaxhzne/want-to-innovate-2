@@ -1,0 +1,1 @@
+Humans can talk about things that are not physically present or thing that don't even exist. Ex: Unicorn

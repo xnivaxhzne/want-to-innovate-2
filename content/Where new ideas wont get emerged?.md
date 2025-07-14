@@ -1,0 +1,2 @@
+- `it rarely happened during a meeting when they were in a focused`, 
+- convergent thinking mode searching for a solution to a particular problem

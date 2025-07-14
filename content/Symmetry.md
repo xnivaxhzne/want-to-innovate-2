@@ -1,0 +1,1 @@
+> A property of visual equivalence among elements in a form.

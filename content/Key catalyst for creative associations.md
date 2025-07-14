@@ -1,0 +1,1 @@
+4 discovery skills helps innovators to actively pursue diverse new information which are the key catalyst for creative associations

@@ -1,0 +1,4 @@
+- ADD - Attention Deficit Disorder
+	- People with ADD often have difficulty focusing, following through on tasks, organising activities, and managing time effectively
+- ADHD - Attention Deficit Hyperactivity Disorder
+	- People with ADHD might have trouble paying attention, may act without thinking, or might be more active than others. It's like their brain is always moving quickly, making it challenging to slow down and concentrate on just one thing.

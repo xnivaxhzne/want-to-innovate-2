@@ -1,0 +1,1 @@
+"Coarse-grained" is a term used to describe a level of abstraction or granularity where details are aggregated or simplified. It typically means focusing on the bigger picture or the general structure rather than the finer, more detailed aspects.

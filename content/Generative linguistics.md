@@ -1,0 +1,1 @@
+A person can create an infinite sentences based on any thought they may have or any event that might occur. 

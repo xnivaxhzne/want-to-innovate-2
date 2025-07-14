@@ -1,0 +1,7 @@
+- In this case we have difficulty with absolute judgements.
+- We tend to save Rs.50 for food by walking 10 mins. But we wont consider the same when we are spending lets say 1000.
+- a product discounted from 100 to 70 is good buy than straight away buying it for Rs70.
+- We will say the share is great as it is 50 percent below the peak price. but the question should whether it move up or not?
+- `We don't notice gradual changes - inflation`. but we get outraged for taxes which are in the same percent.
+- a charming women marries a fairly average man as her parents were awful people. so the ordinary man appears to be a princes.
+- if you are seeking a partner, never go out in the company of your supermodel friends. People will find you less attractive than you really are. Go alone.

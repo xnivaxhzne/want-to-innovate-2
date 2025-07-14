@@ -1,0 +1,1 @@
+> The level of control provided by a system should be related to the proficiency and experience levels of the people using the system.

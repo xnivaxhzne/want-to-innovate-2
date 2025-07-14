@@ -1,0 +1,1 @@
+An element is anything that needs to be learned or processed while schemas are usually multiple, interacting elements

@@ -1,0 +1,1 @@
+Toys act as a best learning tool. I think it due to the fact that it imposes less [[Cognitive Load Theory|cognitive load|]].

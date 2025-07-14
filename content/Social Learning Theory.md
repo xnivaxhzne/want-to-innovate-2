@@ -1,0 +1,3 @@
+- Learning occurs through observation, imitation, and modeling.
+- Emphasizes the importance of social interactions and observing others.
+- Concepts of self-efficacy and reciprocal determinism.

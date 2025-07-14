@@ -1,0 +1,1 @@
+> A tendency to seek consistency among attitudes, thougllts, and beliefs.

@@ -1,0 +1,1 @@
+The distance between one note to the next same note, either higher or lower.

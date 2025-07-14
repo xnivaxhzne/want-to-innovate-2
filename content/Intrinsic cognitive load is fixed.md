@@ -1,0 +1,1 @@
+Apart from altering what is learned or the act of learning itself, intrinsic cognitive load cannot be altered. For a particular task presented to learners with a particular level of knowledge, intrinsic cognitive load is fixed.

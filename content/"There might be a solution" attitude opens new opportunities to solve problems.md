@@ -1,0 +1,1 @@
+> "Idhuku edho onnu irukanum la nu nenachu theduna, kandipa edho onnu kedaikum"

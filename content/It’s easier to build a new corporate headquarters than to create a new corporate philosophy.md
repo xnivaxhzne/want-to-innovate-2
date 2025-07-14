@@ -1,0 +1,1 @@
+Issues of ignorance and understanding are complex and subjective, making them easy to overlook in favour of more tangible, immediate concerns. It’s easier to build a new corporate headquarters than to create a new corporate philosophy.

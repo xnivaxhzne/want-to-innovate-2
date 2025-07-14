@@ -1,0 +1,1 @@
+This is the height of the sound wave and relates to how loud or soft the sound is.

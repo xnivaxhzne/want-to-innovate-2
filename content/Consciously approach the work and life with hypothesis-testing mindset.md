@@ -1,0 +1,1 @@
+explore the world intellectually and experimentally by holding convictions at bay and testing hypotheses along the way. 

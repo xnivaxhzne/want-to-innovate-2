@@ -1,0 +1,1 @@
+Scale is the relative size of your diagrammatic work.The scale of a map covering a wall is greater than the scale of a map on regular-sized paper.

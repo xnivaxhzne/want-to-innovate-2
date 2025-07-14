@@ -1,0 +1,1 @@
+Dyslexia is a learning disability that affects a person's ability to read, write, and spell

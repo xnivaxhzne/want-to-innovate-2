@@ -1,0 +1,4 @@
+- all meaningful ideas must scale to the real-world context.
+- Only through scale, `impact` is created.
+- at this stage `creativity translates into the realm of innovation` and creates a lasting impact.
+- only scale offers the ultimate validity to your idea.

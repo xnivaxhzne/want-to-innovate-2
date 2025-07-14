@@ -1,0 +1,1 @@
+> A tendency to see attractive people as more intelligent, competent, moral, and sociable than unattractive people

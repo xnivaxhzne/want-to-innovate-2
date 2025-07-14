@@ -1,0 +1,1 @@
+The authors found that innovators demonstrate a high Q/A ratio and their `questions are valued as highly as good answers.`

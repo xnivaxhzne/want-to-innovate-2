@@ -1,0 +1,1 @@
+- A movement in psychology that emphasis holistic processing.

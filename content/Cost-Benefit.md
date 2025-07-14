@@ -1,0 +1,1 @@
+> An activity will be pursued only if its benefits are equal to or greater than the costs

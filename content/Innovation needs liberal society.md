@@ -1,0 +1,2 @@
+Innovation happens when people are free to think, [[Experimenting skill|experiment]] and speculate. It happens when people can [[Trade|trade]] with each other. It happens where people are relatively prosperous, not desperate. It is somewhat contagious. It needs [[Money|investment]]. It generally happens in cities.
+Which is why liberal economies, with their free-roving experimental opportunities, do so well. Serendipity plays a big role in innovation. 

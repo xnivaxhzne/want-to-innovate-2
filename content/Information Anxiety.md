@@ -1,0 +1,80 @@
+By Richard Saul Wurman (Founder of TED Conferences)
+- This book helps you learn to recognise what is understandable and what is not.
+
+> "Information anxiety is the black hole between data and knowledge, and it happens when information doesn't tell us what we want or need to know." ~ Richard Saul Wurman
+
+- [[Communication]]
+- Economy based on a information resource which is not only renewable, but self-generating. Running out of is not a problem, but drowning in it is.
+- [[Understanding business]]
+- [[Access is the antidote to information anxiety]]
+- One of his most intriguing ideas is the use of [[We understand complex instructions if we can ask a lot of questions and participate in a dialogue|We understand complex instructions if we can ask a lot of questions and participate in a dialogue]] - good conversation - as a model for the [[3 types of business in sharing information|communications industry]].
+- [[The biggest challenge for modern civilisation will be figuring out how to turn information into organised knowledge.]]
+- [[Knowledge, like people, places, things and organisational forms, is becoming disposable]]
+- We are like a thirsty person who has been condemned to use a thimble to drink from a fire hydrant.
+- More meaning, and fewer facts.
+- [[During the age of industry, the world was ruled by natural resources, it is now run on information]]
+- [[Information]]
+- In our information-hungry era, raw data often pretends to be real information.
+- Many countries already have most of their workforce in jobs that mainly process information.
+- [[Information as something that reduces uncertainty]]
+- [[Channel, storage and retrieval capacities of hardware are rapidly growing where human capacities hasn't increased the same way]]
+- [[Boredom can also due to information overload]]
+- [[Five rings of Information]]
+- [[Situations that cause information anxiety]]
+- [[My expertise is my ignorance]]
+- [[Some key ideas that help manage information and reduce anxiety]]
+- [[Order Doesn’t Equal Understanding]]
+- [[3 types of business in sharing information]]
+- [[You don't need to remember all information]]
+- [[It’s easier to build a new corporate headquarters than to create a new corporate philosophy]]
+- [[A physical system contains information if it exhibits organisation]]
+- [[Figuring out how to think about the problem]]
+- [[Accuracy alone does not make things understandable]]
+- [[Even if the needle is all you need, it will help to know how the hay is organised]]
+- [[The ways of organising information are finite]]
+- [[Think in opposites]]
+- [[Looking at radical alternatives helps discover new possibilities and solutions]]
+- [[Reorganising the information change its meaning]]
+- [[Offering a variety of ways to access the same information]]
+- [[Take decision by understanding the factors involved]]
+- The world relies heavily on [[Communication|communication]], [[Perception|perception]], and the [[Conjunctive binding|synthesis]] of information.
+- [[Root cause analysis]]
+- [The Cult of Information by Theodore Roszak](https://www.goodreads.com/book/show/630031.The_Cult_of_Information) - [[The Cult of Information|Notes]]
+- [[Only one method for transmitting thought that somewhat captures the spirit of the mind - the medium of the conversation]]
+- [[We have more skills to put thoughts together by language than we do by pictures]]
+- [[Five-minute new idea rule]]
+- [[Many instruction manuals don't work because they don't talk to the consumer]]
+- [[Language determines thought]]
+- [[We may need a new language to think differently]]
+- [[Improve our knowledge of the language to improve our ability to understand and manage information]]
+- [[We have tempted to solve all problems with "more" solutions]]
+- [[Performance vs Function]]
+- [[The emphasis on function will produce more technology without clear manuals and thus information anxiety]] 
+- [[Understanding the pitfalls of communicating information will give you a defence against information anxiety]]
+- [[Communication equals remembering what it's like not to know]]
+- [[Learning requires not just facts but also stories and images]]
+- [[Increased knowledge and improved technology reduced the need for struggle and a sense of satisfaction]]
+- [[Way that you communicate in a three-dimensional event is very different from the way you communicate in a two-dimensional event]]
+- [[What you take for granted you cannot improve - tax forms shouldn't be confusing]]
+- [[In order to acquire and remember new knowledge, it must stimulate your curiosity in some way]]
+- [[Access guides by Richard Saul Wurman]]
+- [[One effective way to learn is by expressing your uncertainties and trying to clarify what confuses you]]
+- [[Personal AI]]
+- [[Learning styles]]
+- [[Creatively reorganising existing evidence to uncover new insights]]
+- [["aha!" thinking is different from general intelligence]]
+- [[Apperception]]
+- [[What is only a fact alone can be information if it is collected with other facts]]
+- [[The way we make sense out of raw data is to compare and contrast, to understand differences]]
+- [[Easing perception of a concept to humans]]
+- [[Humans can only sample portions of reality and we need some tricks to overcome it]]
+- [[You only understand information relative to what you already understand]]
+- [[Better to ignore information that you don't understand than trying to act upon it]]
+- [[Things that seem so obvious to us today were brilliant insights at some point in time]]
+- [[Sometimes, just reorganising or comparing what you know can reveal new insights]]
+- [[We are affected as much by the flow as by the production of information]]
+- [[We receive information in linear way, but we dont think linearly]]
+
+---
+
+- [[If it's presented in a form you can understand, you never get overloaded by it]]

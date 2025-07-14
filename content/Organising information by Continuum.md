@@ -1,0 +1,1 @@
+This mode organises items by magnitude from small to large, least expensive to most expensive, by order of importance, et

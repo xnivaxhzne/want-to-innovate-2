@@ -1,0 +1,7 @@
+- A set of techniques and tools for process improvements.
+- It aims to reduce the time, defects and variability experienced by processes in an organisation.
+- Two diff methodologies:
+	- `DMAIC` - Define, Measure, Analyze, Improve and Control.
+	- `DMADV` - Define, Measure, Analyze, Design and Verify.
+- It improves customer loyalty and employee morale.
+- It almost produces defect free products.

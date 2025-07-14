@@ -1,0 +1,2 @@
+![[Pasted image 20240802192000.png]]
+The stick charts of the Marshall Islanders, used for navigation, combined primitive and sophisticated abstract qualities. A grid of palm sticks, tied together with coconut fiber, indicated open sea over several hundred miles, while curved sticks showed prevailing wave fronts. Shells marked the relative location of islands, and threads showed where islands came into view. These charts were used on canoes during open-sea journeys.

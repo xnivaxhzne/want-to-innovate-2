@@ -1,0 +1,1 @@
+By 2nd law of thermodynamics, entropy cannot be reversed, locally, unless there is a source of energy - which is necessarily supplied by making something else even less ordered somewhere else, so the entropy of a whole system increases. 

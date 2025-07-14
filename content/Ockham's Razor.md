@@ -1,0 +1,1 @@
+> Given a choice between functionally equivalent designs, the simplest design should be selected

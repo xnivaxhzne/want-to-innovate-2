@@ -1,0 +1,2 @@
+- The next step in understanding the way things are is to `ask causal questions to gain insights` into - [[Why things are the way they are]]
+- Inventors hunt down the real [[Jobs to be done|job to be done]] by understanding better `what is really going on in their world`  through questioning.

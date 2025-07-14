@@ -1,0 +1,5 @@
+- People find workarounds to use the product in unintended ways
+- A workaround is an incomplete or partial solution to a particular job to be done. 
+- When you notice a workaround, pay attention.
+- It provide clues as to why the current product or service is an `incomplete solution`
+- It might provide clues for how to create an` entirely new `product, service, or business to do the job.

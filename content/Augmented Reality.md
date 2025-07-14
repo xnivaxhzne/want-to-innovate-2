@@ -1,0 +1,1 @@
+A type of technology that allows digital images and information to be displayed onto the physical environment.

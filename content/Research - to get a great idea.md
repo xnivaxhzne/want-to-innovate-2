@@ -1,0 +1,5 @@
+- You need to have a great understanding of the problem if you want to solve it effectively.
+- The only way to get quality output is to start with quality input.
+- [[Break the problem apart for solving it]]
+- [[Spot the humans when you solve a problem]]
+- [[Find the root cause of the problem by asking lot of why]]

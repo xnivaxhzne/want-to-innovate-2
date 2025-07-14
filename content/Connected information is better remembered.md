@@ -1,0 +1,1 @@
+[[To truly understand the meaning of any part we have to first know how the parts are connected to the whole]]

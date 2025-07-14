@@ -1,0 +1,1 @@
+> Tile ratio of face to body in an image that influences the way the person in the image is perceived.

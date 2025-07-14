@@ -1,0 +1,1 @@
+GAs implicitly identify building blocks or subassemblies of good solution and recombine different to form very high performant solutions

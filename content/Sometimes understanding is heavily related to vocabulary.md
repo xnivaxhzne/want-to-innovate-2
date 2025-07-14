@@ -1,0 +1,1 @@
+If you don’t have the proper word, it becomes difficult to communicate a concept (and sometimes just to think about it). The more concepts you understand, the more powerful your thinking can be, the more combinations you can make, and the more creative you can be.

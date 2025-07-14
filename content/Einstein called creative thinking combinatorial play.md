@@ -1,0 +1,1 @@
+He saw it as `the essential feature in productive thought`

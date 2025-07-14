@@ -1,0 +1,3 @@
+The book has just got too many words. When do you need those words? When you are making a map. You need those words, when you make sense out of it. Because they tell a story. As an author, to communicate ideas, they have to write in sentences and paragraphs. But students don't have to remember the full sentences. Students don't have to remember the full paragraphs. So what we are doing is, condensing the material into the concept maps, that is gonna be on the test likely, but in this fashion, that you can see it and visually you dont have to read all those words because you can already done that.
+
+Ref: https://youtu.be/S4SwSheh7TI?si=nYE2dLhnUCM6T6bu&t=3200

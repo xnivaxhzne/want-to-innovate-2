@@ -1,0 +1,1 @@
+Relevance refers to the degree to which the information is perceived to be important

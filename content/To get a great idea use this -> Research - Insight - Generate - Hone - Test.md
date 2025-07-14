@@ -1,0 +1,5 @@
+1. [[Research - to get a great idea]]
+2. [[Insight - to get a great idea]]
+3. [[Generate - to get to a great idea]]
+4. [[Hone - to get to a great idea]]
+5. [[Test - to get to a great idea]]

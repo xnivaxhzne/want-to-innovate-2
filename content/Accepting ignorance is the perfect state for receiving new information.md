@@ -1,0 +1,1 @@
+It leads to asking [[Questioning Skill|questions]] that foster learning.

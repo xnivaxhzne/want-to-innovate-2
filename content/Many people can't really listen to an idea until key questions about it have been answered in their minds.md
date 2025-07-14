@@ -1,0 +1,3 @@
+While suspense has its place, it does tend to induce anxiety, which is probably not an optimum state to receive new information. If you know the ending, you can relax and enjoy the manner in which something is being presented.
+
+An audience will be more receptive to new information if they aren't kept in suspense, made anxious trying to guess where someone is going. Many people can't really listen to an idea until key questions about it have been answered in their minds.

@@ -1,0 +1,13 @@
+
+- LLMs learn the **statistical patterns** that piece words together into sentences and paragraphs.
+- Neural network is an extremely complicated type of mathematical function involving millions of numbers that converts an input into an output.
+- In every rounds of training, an algorithm adjusts these numbers to try to improve its guesses, using a mathematical technique known as **backpropagation**. 
+- This process of tuning internal numbers is what it means for a neural net to **"learn"**
+- Actually the neural net is not generating letters, but probabilities. It is doing a reasonable continuation. 
+	- reasonable - what one might expect someone to write after seeing what people have written on billions of webpages.
+- As language models grow in size, they develop [[Emergent abilities]]
+- If you pick the highest ranked next word, you will get "flat" essay - no creativity. If you pick lower-ranked words, we will get "more interesting" essay.
+	- "temperature" parameter determines it.
+- There are about 40,000 reasonably commonly used words in English. 
+- By looking at a large corpus of English text (say a few million books, with altogether a few hundred billion words), we can get an estimate of how common each word is.
+- [[LLM is a form of user interface - wrapper around specifics]]

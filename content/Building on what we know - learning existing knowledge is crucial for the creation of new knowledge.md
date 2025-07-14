@@ -1,0 +1,1 @@
+To discover new knowledge, one must first learn and understand existing knowledge. Deutsch stresses that all new ideas are, to some extent, built on the ideas that came before. By learning what is already known, we can identify the limitations, gaps, or inconsistencies in current understanding, which then guide the pursuit of new knowledge.

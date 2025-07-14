@@ -1,0 +1,1 @@
+During the age of industry, the world was ruled by natural resources, it is now run on information, and while resources are finite, information seems to be infinite.

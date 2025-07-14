@@ -1,0 +1,2 @@
+- if you want to really super-chanrge your creative thinking, you need to get into the habit of stocking the shelves in your brain.
+- The broader your thinking and knowledge, the more oppurtunities you have for your ideas.

@@ -1,0 +1,1 @@
+The idea that humans are more fallible than machines has caused us to turn toward technology for entertainment, information, and problem-solving.

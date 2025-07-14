@@ -1,0 +1,1 @@
+The value of the technology lies only in its ability to manage and exploit the [[Information as product|product—information]]

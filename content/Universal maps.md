@@ -1,0 +1,1 @@
+However, maps are like words; if they don't have a fairly universal meaning, they lose the power to communicate.

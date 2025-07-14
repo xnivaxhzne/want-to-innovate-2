@@ -1,0 +1,3 @@
+Connecting existing information in new ways is what gives data meaning. This is reassuring because it means you don't need to worry about discovering entirely new information. Instead, focus on finding connections between what you already know. Realising that everything is connected can help you start your search anywhere with confidence.
+
+[[Insight is the spark of knowledge colliding in your head. Not on paper, or the web]]

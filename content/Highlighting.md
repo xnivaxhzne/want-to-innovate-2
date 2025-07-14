@@ -1,0 +1,1 @@
+> A technique for bringing attention to an area of text or image.

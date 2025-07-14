@@ -1,0 +1,2 @@
+- Its a study of adult learning.
+- The opposite is [[Pedagogy]]

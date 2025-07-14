@@ -1,0 +1,1 @@
+There is a tendency to believe that the more “expert opinions” we get—be they legal, medical, automotive, or otherwise—the more informed we will be. But we tend to forget that “expert opinion” is by no means synonymous with “objective opinion.” Unfortunately, most experts come with a professional bias that makes obtaining truly objective information almost impossible.

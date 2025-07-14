@@ -1,0 +1,1 @@
+Essentially, to create things, you have to be a rational optimist. Rational in the sense that you have to see the world for [[Types of reality|what it really is]]. And yet you have to be [[Anything that are not forbidden by the laws of physics are possible|optimistic]] about your own capabilities, and your capability to get things done.

@@ -1,0 +1,1 @@
+Of all the discovery skills, we found that experimenting was the best differentiator of innovators versus non-innovators

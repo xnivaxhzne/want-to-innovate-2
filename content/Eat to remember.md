@@ -1,0 +1,1 @@
+After-dinner speeches would be more memorable if delivered before the meal

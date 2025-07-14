@@ -1,0 +1,1 @@
+Genuine insights come from internal cognitive processes rather than external sources alone.

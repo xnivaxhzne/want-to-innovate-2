@@ -1,0 +1,2 @@
+- [[Well solved problems often result in products and services and in upsides for the solvers in terms of the business.]]
+- [[Something to qualify as innovative, it must be new, surprising and radically useful]]

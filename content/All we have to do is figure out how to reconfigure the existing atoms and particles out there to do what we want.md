@@ -1,0 +1,5 @@
+**Naval:** One of the things that [David Deutsch](https://en.wikipedia.org/wiki/David_Deutsch) does in his works that he often talks about is how anything that is possible or [[Anything that are not forbidden by the laws of physics are possible|not forbidden by the laws of physics is possible]] for us to create through technology and science. 
+
+As universal explainers, humans are capable of understanding anything that any being or any theoretical creatures capable of [[Understanding|understanding]]. All we have to do is figure out how to reconfigure the existing atoms and particles out there to do what we want within the laws of physics, which are quite generous and quite broad. In that sense, [[All failures are just lack of knowledge|all failures and all sins are just ignorance. It’s just the lack of knowledge]].
+
+https://nav.al/matt-ridley-2

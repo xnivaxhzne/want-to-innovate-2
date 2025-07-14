@@ -1,0 +1,1 @@
+> [00:15:21](https://www.youtube.com/watch?v=4nm6f86QwTY&t=921s) How much 1 Trillion dollar is?

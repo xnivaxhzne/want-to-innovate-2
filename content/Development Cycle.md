@@ -1,0 +1,1 @@
+> Successful products typically follow four stages of creation: requirements, design, development, and testing.

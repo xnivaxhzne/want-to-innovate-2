@@ -1,0 +1,3 @@
+The introduction of increasingly sophisticated information technology has revolutionised that simple process. The net effect is a faster flow of information through the information channel, bringing sender and receiver closer together, or collapsing the information float—the amount of time information spends in the communication channel.
+
+- [[Channel, storage and retrieval capacities of hardware are rapidly growing where human capacities hasn't increased the same way]]

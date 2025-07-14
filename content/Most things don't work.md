@@ -1,0 +1,1 @@
+> "I live by two credos: If you don't ask, you don't get. And most things don't work." ~ Richard Saul Wurman

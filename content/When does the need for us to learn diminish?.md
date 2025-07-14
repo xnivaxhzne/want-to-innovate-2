@@ -1,0 +1,4 @@
+- Whenever knowledge needed to do a task is readily available in the world.
+- Psychological research suggests that people maintain only partial descriptions of the things to be remembered.
+- Only a small minority of people must know enough to distinguish.
+- Descriptions need discriminate only among the choices in front of me.

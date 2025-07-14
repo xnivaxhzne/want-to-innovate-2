@@ -1,0 +1,1 @@
+[[Tactics is important, we can use AI for facts]]

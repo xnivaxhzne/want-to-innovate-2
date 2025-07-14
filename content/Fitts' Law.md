@@ -1,0 +1,1 @@
+> Time time required to move to a target is a function of the target size and distance to the target.

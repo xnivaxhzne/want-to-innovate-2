@@ -1,0 +1,1 @@
+[[Ideas compose too! We call it citation. Ideas get connected, creating new higher-level ideas, and so on]]

@@ -1,0 +1,3 @@
+By the term Science workers, I mean those who deals with science or applies it to solve some problems or creates better tools for humans to augment the species as a whole. It can include scholars, professors, engineers, etc...
+
+They learn the physical laws which are universal and can't be changed / exists in objective reality. They learn the conventions and abstractions created on top of the physical laws by their ancestors, to either build on top of those conventions and abstractions, or to create a new convention or abstraction from some level of existing one or from ground up to augment/advance the humans to a higher level in the purposeless evolution.

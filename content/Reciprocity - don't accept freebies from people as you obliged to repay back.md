@@ -1,0 +1,3 @@
+“Reciprocity is a very useful survival strategy, a form of risk management. [[Evolution by natural selection|Without it, humanity—and countless species of animals—would be long extinct]]. It is at the core of cooperation between people (who are not related) and a necessary ingredient for economic growth and wealth creation. There would be no global economy without it—there would be no economy at all. That’s the good side of reciprocity.”
+
+When someone offers you something, politely reject.

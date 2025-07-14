@@ -1,0 +1,1 @@
+If it did, there’d be no new information. It wouldn’t be a complex system if you could easily predict the next step.

@@ -1,0 +1,1 @@
+The items to be retained from meaningful relationships with themselves or with other things already known.

@@ -1,0 +1,8 @@
+Ref: https://youtu.be/QUNrBEhvXWQ?si=psOjNWDtMrx4fWFF&t=301
+
+
+Internet is built upon layers and layers and layers of ideas. And if we start at the lowest of those levels, zeros and ones, you have something called binary, where zeros and ones can be used to represent any other numbers as well. And if we use more and more zeros and ones, more and more binary digits or bits to speak, we can count up higher and higher and higher.  
+
+And then if you and I agree that all right, well, let's not just use these patterns of zeros and ones to represent numbers, what if we reserve some of these patterns to represent letters of like the English alphabet, and then may be you and I can decide to reserve certain patterns of zeros and ones to represent colors like red and blue and green and combinations of thereof. 
+
+Well, once we have the ability to represent colors, we could then represent whole pictures, because what's a picture on your phone or a computer screen? Well, it's really just a grid of dots, each of which has its own colour. So this is all to say that even if we start at this lowest level of zeros and ones, so [[Agreed standards|long as you and I, all of the devices we use agree to follow some standard]] like this, we can build these layers and layers of [[Abstractions|abstractions]] so to speak, on top of one another until finally, you and I come up with a pattern of zeros and ones that represents "Send this piece of information from me over there". And thus, we have something like the internet. 

@@ -1,0 +1,3 @@
+
+>[00:23:26](https://www.youtube.com/watch?v=4nm6f86QwTY&t=1406s) we aren't given the tools and the possibility and the availabilities of the different modalities for us to choose from and choose and have a way of choosing which is the most appropriate one for the information that we want to convey or the feelings we want to convey or maybe enough about those you don't have to learn how to do animated films or computed generated design but you `ought to know what it can do if you ask of it` 
+>`I don't know how to uh build a refrigerator but I know if I want to keep my food cold I have to have a refrigerator` I know what they ask for so we have to understand the availabilities and how to get them and so we can explain and get through life.

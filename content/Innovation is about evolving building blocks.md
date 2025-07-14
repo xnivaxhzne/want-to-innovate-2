@@ -1,0 +1,1 @@
+Identification and exchange of building blocks is the critical path to innovative success

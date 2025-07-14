@@ -1,0 +1,1 @@
+The Creativity that results in computer-generated music and art is more likely to be attributed to the humans who did the coding than to the code that produces the output.

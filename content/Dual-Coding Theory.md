@@ -1,0 +1,2 @@
+- **Definition:** Present information using both verbal and visual forms.
+- **Example:** Use a combination of text and related images or diagrams to enhance understanding and memory retention.

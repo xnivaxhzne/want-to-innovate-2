@@ -1,0 +1,1 @@
+We’ve tried to reduce the cost of doing experiments so that we can do more of them. If you can` increase the number` of experiments you try from `a hundred` to `a thousand,` you dramatically increase the number of innovations you produce

@@ -1,0 +1,4 @@
+- It denotes `frugality` in both approach and outcome.
+- It adopts part of DT `prototyping` and `testing` and not so much of `empathy` and systematic `ideation`.
+- Those who `improvise` and `create good enough solutions` to their (own) problems do not bother to adopt DT, let alone be disciplined.
+- They think, test, fail, iterate and then produce, though often achieving the desired scale.

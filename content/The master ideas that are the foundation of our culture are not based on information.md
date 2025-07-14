@@ -1,0 +1,1 @@
+“So it is with all master ideas. They are bom, not from data, but from absolute conviction that catches fire in the mind of one, of a few, then of many as the ideas spread to other lives where enough of the same experience can be found waiting to be ignited,” continues Roszak.

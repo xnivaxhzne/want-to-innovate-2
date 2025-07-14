@@ -1,0 +1,1 @@
+> Elements that are similar are perceived to be more related than elements that are dissimilar.

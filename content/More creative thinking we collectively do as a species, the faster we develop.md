@@ -1,0 +1,1 @@
+more creative thinking we collectively do as a species, the faster we develop and the sooner we get to hover cars, immortality and intersteller travel.

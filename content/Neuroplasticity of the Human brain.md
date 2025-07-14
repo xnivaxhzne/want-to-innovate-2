@@ -1,0 +1,1 @@
+A mind is constantly forming and changing and the ideas with which we come into contact can redefine our minds.

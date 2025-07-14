@@ -1,0 +1,5 @@
+- When someone tells you that the situation will first gets worse before the recovery, its time to verify it.
+- Because let us say as per the prophecy the bad thing happened as expected. We would get the same output if we didn't do anything. 
+- So we should check with the correct person for solution.
+- Even if in the middle, good thing happened, you would be happy and the **prophet** can claim it is because of his smartness.
+- But situations do exists where first the dip and then improve like career change.

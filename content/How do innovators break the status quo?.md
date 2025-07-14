@@ -1,0 +1,7 @@
+- One way is to refuse to be dictated by other people’s schedules.
+- Spending almost one more day each week on discovery activities.
+- They are actively looking for opportunities to [[What are the language used by innovators to describe their motives?|change the world]].
+- Embracing `a mission for change` makes it much easier for them
+	- [[Innovators have "courage to innovate" - an active bias against the status quo|to have courage to innovate]], 
+	- [[Innovators take smart risks to transform ideas into powerful impact|to take smart risks]] , 
+	- [[Innovators love mistakes and learn quickly from them|to make mistakes and quickly learn from them]]

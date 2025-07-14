@@ -1,0 +1,3 @@
+- Learning is a process of connecting specialised nodes or information sources.
+- Emphasizes the role of technology and social networks in learning.
+- Knowledge is distributed across a network of connections.

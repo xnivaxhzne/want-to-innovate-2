@@ -1,0 +1,2 @@
+- Innovative ideas flourish at the `intersection of diverse` experience, disciplines, culture and fields.
+- Throughout history, great ideas have emerged from these intersection.

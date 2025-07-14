@@ -1,0 +1,1 @@
+> A point of physical or attentional entry into a design.

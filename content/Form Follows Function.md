@@ -1,0 +1,1 @@
+> Beauty in design results from purity of function.

@@ -1,0 +1,2 @@
+- They also invoke a series of [[Ask "what caused?" questions|what-caused questions]] to grasp the drivers behind [[Why things are the way they are]]
+- Collectively these questions help [[Describe the territory|describe the territory]] (physically, emotionally and intellectually) and provide a launching pad for the next line of enquiry.

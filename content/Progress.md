@@ -1,0 +1,1 @@
+What we tend to do as a species, as we progress, is to become more and more specialised in what we produce but more and more diversified in what we consume

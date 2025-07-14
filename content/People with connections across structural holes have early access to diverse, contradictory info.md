@@ -1,0 +1,1 @@
+people with connections across structural holes(Gaps in social networks) have early access to diverse, often contradictory info and interpretations, which gives them a competitive advantage in seeing and developing good ideas.

@@ -1,0 +1,1 @@
+Schema construction consists of learning how multiple elements interact

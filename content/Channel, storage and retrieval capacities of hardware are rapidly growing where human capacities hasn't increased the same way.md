@@ -1,0 +1,1 @@
+Better information-processing can speed up data flow, but it doesn’t help much with understanding the data, deciding what to do with it, or finding deeper meaning. [[Meaning requires time-consuming thought]], and modern life's fast pace makes it hard to find time to think.”

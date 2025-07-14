@@ -1,0 +1,4 @@
+- grouping parts into assemblies gives better protection against unexpected shocks, more ease of design/construction, and more ease of repair.
+- A module or assembly begins typically as a loose grouping of individual and later in its life, the grouping solidifies into a specially constructed unit.
+- [[The Nature of Technology - What It Is and How It Evolves]]
+- [[Modularity]]

@@ -1,0 +1,2 @@
+> It is extremely important, not just the way we understand what communication is, but we actually communicate using our understanding of what communication is via that metaphor.
+> https://youtu.be/JFgFjdCo2Js?si=yZwOSZYK_v-_POMD&t=1238

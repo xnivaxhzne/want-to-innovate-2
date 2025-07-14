@@ -1,0 +1,1 @@
+Comparing unknowns or intangibles is uninformative; so is comparing things that have nothing in common.

@@ -1,0 +1,1 @@
+An executive summary is a short document or section of a document that summarizes a longer report, proposal, or group of related reports. It's intended to help readers quickly understand a large amount of material without having to read it all.

@@ -1,0 +1,1 @@
+> A technique that influences decision making and judgment by manipulating the way information is presented.

@@ -1,0 +1,1 @@
+schema automation allows those interacting elements to be ignored when using a schema

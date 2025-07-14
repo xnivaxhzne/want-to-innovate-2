@@ -1,0 +1,1 @@
+[[Stocks of building-block ideas]]

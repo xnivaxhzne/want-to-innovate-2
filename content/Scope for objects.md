@@ -1,0 +1,1 @@
+Scope is your clearly stated purpose for the diagram. The scope of a blueprint for an actual house is greater than the scope of a diagram explaining the rooms that make up a typical house.

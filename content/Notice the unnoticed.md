@@ -1,0 +1,2 @@
+- Noticing the unnoticed calls for a [[Peripheral Vision|peripheral vision]]
+- Innovators habitually surface `new ideas by noticing things at the edge of experience` (or as an IDEO employee explained, “look for people on the extremes”)

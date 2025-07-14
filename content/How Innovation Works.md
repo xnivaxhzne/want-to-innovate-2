@@ -1,0 +1,21 @@
+## Introduction:
+
+- [[The infinite improbability drive]]
+- Making improbable order by expending or converting [[Energy|energy]]. 
+- [[Improbable arrangements of the world, crystallised consequence of energy generation, are what both life and technology are all about]]
+- Innovations are enhanced forms of improbability.  [[Innovations are improbable combinations of atoms and digital bits of information]]
+- Common thing in innovation and that is shared by evolution is enhanced forms of improbability.
+- It is astronomically improbable that the atoms in an iPhone would be neatly arranged by chance into millions of transistors and liquid crystals.
+- [[Innovation]], like evolution, is a process of constantly discovering ways of rearranging the world into forms that are unlikely to arise by chance and that happen to be useful.\. Results are more ordered, less random, than their ingredients.
+- Innovation is potentially infinite because even if it runs out of new things to do, it can always find ways to do the same things [[Time|more quickly]] or for less [[Energy|energy]]. - [[Human constantly seeking in efficiency in everything]]
+- [[Second law of thermodynamics]]
+- As long as human beings apply energy to the world in careful ways, they can create even more ingenious and improbable structures.
+- [[Partial ruin of the Dunstanburgh castle after 700 years is more probable and more entropic]]
+- [[The more ordered and improbable our world becomes, the richer we become]]
+- [[Innovation]] means finding new ways to apply energy to create improbable things and see them catch on.
+- [[Innovationism]] 
+- Much innovation preceded the science that underpinned it.
+- Random [[Luck|luck]] might be the best guess for the success of Sliced Bread. 
+- [[Innovation needs liberal society]]
+- [[The chief way in which innovation changes our lives is by enabling people to work for each other]].
+-  [[We underestimate the impact of innovation in the long run but overestimate it in the short run]]

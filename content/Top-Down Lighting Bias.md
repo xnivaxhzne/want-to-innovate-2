@@ -1,0 +1,1 @@
+> A tendency to interpret shaded or dark areas of an object as shadows resulting from a light source above the object

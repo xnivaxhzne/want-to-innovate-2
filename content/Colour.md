@@ -1,0 +1,1 @@
+> Colour is used in design to attract attention, group elements, indicate meaning, and enhance aesthetics.

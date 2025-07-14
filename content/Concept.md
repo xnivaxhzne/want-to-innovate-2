@@ -1,0 +1,1 @@
+A concept is an abstract idea or general notion that exists in people’s [[Mental Models|mental models]]. For example, pizza is a concept on which many actual pies are fired.

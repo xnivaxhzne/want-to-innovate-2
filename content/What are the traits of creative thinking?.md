@@ -1,0 +1,3 @@
+- Insatiable curiosity
+- A desire to challenge the status quo
+- The knowledge that creative inspiration comes from seeking out new experiences

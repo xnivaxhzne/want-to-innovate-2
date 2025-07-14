@@ -1,0 +1,1 @@
+David Deutsch suggests that knowledge is infinite in scope. No matter how much we learn, there will always be more to discover. This perspective implies that the process of learning and creating new knowledge is never-ending, driving continuous progress.

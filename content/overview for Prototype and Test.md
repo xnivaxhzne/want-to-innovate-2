@@ -1,0 +1,2 @@
+- once enough ideas were generated, its time to pick the most promising ones and to scale some of those.
+- Prototyping and Testing happens iteratively/simultaneously as you build to learn and validate - these 2 were clubbed.

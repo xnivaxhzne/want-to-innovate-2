@@ -1,0 +1,1 @@
+Utilise both auditory and visual channels to present information. For example, complementing a written explanation with a spoken narration.

@@ -1,0 +1,1 @@
+It is also important to understand that fundamental truths are the ultimate form of knowledge which cannot be innovated upon. Ex: you cannot change gravity, properties of electrons. But you can use different colour wire of positive connection as it is just a standard. 

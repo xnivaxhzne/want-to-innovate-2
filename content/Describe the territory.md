@@ -1,0 +1,5 @@
+- Innovators treat the world as a `question mark` #insight
+- `rarely` works on `auto pilot`
+- Constantly `challenging the accuracy` of their `mental maps` about the territory   #insight
+- Best innovators remember that their `views of the world are never the actual territory.` #insight
+- Intuitively they rely on rich assortment of `questions` to develop a `deep understanding` of how things really are, before probing intensely into what they might be. #insight

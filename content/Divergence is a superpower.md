@@ -1,0 +1,3 @@
+- everything that makes your mind different makes your thinking valuable
+- you need to leave the comfortable security of the group behind and venture into new teritories.
+- you need to experience things the masses dont, question things the masses do and share ideas that may change the direction people are heading in

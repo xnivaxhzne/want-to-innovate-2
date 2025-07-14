@@ -1,0 +1,1 @@
+> It is often preferable to settle for a satisfactory solution, rather than pursue an optimal solution

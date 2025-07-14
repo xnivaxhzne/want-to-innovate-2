@@ -1,0 +1,2 @@
+- It describes the "what" of a story.
+- They are dry, bare bone events.

@@ -1,0 +1,3 @@
+- [[Understand the territory]]
+- [[Identify drivers behind the current territory]]
+- [[Disrupt the territory]]

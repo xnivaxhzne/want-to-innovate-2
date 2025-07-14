@@ -1,0 +1,2 @@
+- Precision of knowledge are seldom required. 
+- Perfect behaviour results if the combined knowledge in the head and in the world is sufficient to `distinguish an appropriate choice from all others`

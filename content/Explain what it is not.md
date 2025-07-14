@@ -1,0 +1,1 @@
+When teaching try to teach what the content being taught is `not`. Try to distinguish what it is not. 

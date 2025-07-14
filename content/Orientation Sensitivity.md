@@ -1,0 +1,1 @@
+> A phenomenon of visual processing in which certain line orientations are more quickly and easily processed and discriminated than other line orientations.

@@ -1,0 +1,1 @@
+In HTML DOM, everything is put inside a box.

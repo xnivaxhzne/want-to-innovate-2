@@ -1,0 +1,1 @@
+> A term used to describe a set of data, that when plotted, forms a symmetrical, bell-shaped curve

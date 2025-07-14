@@ -1,0 +1,1 @@
+An invention is creating something totally new with one's own ideas and development

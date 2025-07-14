@@ -1,0 +1,8 @@
+- What are the inputs?
+- What are the outputs?
+- What is the process which transforms the input to the output?
+- Is the system open-source or [[Black Box Method|blackbox]]?
+- If it is a open-source, how does it do it? It is time to break it again.
+- Use [[Metaphorical thinking|metaphors]] so that people can easily relate with what they already know.
+- Compare two things in the system.
+- Types of relationships.

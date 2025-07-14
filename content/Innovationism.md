@@ -1,0 +1,1 @@
+the habit of applying new ideas to raising living standards

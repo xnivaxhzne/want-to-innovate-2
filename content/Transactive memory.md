@@ -1,0 +1,1 @@
+Seeking aids from other people 

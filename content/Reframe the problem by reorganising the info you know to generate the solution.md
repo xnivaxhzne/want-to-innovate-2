@@ -1,0 +1,1 @@
+Along with your ability to reframe problems, it engages your imagination and thereby unlocks your innovation engine. Essentially, you need to be able to reorganise and rearrange the things you know and the resources you have in order to come up with brand-new ideas.

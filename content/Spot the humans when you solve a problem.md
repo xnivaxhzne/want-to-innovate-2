@@ -1,0 +1,3 @@
+- spend time with the most important individuals and getting to know them.
+- Simply observe how they go about things will give you the nuggets of info - thats your key to a better solution.
+- Because dont forget that you are solving the problem for humans.

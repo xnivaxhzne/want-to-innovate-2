@@ -1,0 +1,1 @@
+Said by Lucretius in his epic poem "De Rerum Natura" (On the Nature of Things)

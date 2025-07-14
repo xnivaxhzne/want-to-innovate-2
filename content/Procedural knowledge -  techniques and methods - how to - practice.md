@@ -1,0 +1,6 @@
+- It includes knowledge of techniques and methods, as well as when to use those techniques and methods. 
+- It can be subject-specific, so, for example, different majors will use different procedures for identifying and solving problems.
+- It puts the “what” into action through the “how to” process.
+- Many times, we see others performing wonderfully, and we ask ourselves: *How do they do it?* We `can read their books or watch their videos to learn the needed factual and conceptual knowledge`, however, knowing 'how to" put that declarative knowledge into practice requires…`practice`!  
+- When you `cognitively know "how to" do something`, then you need to `physically try it and pay close attention to both the process and outcome`. 
+- If you are listening to your body, your mind, and your gut (using all your senses), you will gain information through multiple feedback loops, and those loops of information will guide your analysis and future actions in becoming better at "how to" do it.

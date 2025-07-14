@@ -1,0 +1,8 @@
+- [[Disease of familiarity]]
+- [[Looking good is being good]]
+- [[The uh-huh syndrome]]
+- [[Unhealthy comparisons]]
+- [[Unnecessary exactitude]]
+- [[The expert-opinion syndrome]]
+- [[Many people can't really listen to an idea until key questions about it have been answered in their minds]]
+- [[Information imposters]]

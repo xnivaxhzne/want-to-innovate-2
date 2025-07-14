@@ -1,0 +1,3 @@
+- Used for organising items of similar importance.
+- Category is well reinforced by color as opposed to numbers, which have inherent value.
+- For example, in retail stores, kitchen items are in one section and clothing is in another.

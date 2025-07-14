@@ -1,0 +1,1 @@
+>"We do not think in a linear, sequential way, yet every body of information that is given to us is given to us in a linear manner ... we are taught to communicate in a way that is actually constricting our ability to think." ~ Richard Saul Wurman

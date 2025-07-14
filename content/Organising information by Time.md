@@ -1,0 +1,1 @@
+Time is a good way to organize events that happen over set periods

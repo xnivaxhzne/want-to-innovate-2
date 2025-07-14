@@ -1,0 +1,1 @@
+One’s ability to generate innovative ideas is not merely a function of the mind, but also a function of behaviours and they can be developed.

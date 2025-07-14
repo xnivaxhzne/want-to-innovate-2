@@ -1,0 +1,5 @@
+- the corner stone of DT is empathy.
+- empathy makes the very difference between a failed start and an early success.
+- empathy can be engineered - specific toolsets and skill sets available to simulate an empathetic mindset.
+- the flip-side of empathy is the tendency of getting lost in a myriad of problems and concerns about customers or fellow humans - to overcome: `sharpen the focus`.
+- DT mandates you to pict the most `acute of the problems` to be addressed, keeping in mind that [[Not every problem is worth solving and not every problem can be solved]]

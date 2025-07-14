@@ -1,0 +1,1 @@
+> An action or omission of action yielding an unintended result.

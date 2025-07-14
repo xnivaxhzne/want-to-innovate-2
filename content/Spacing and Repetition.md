@@ -1,0 +1,1 @@
+Space out learning sessions over time and revisit key concepts periodically. Spaced repetition helps reinforce learning and reduces the cognitive load associated with cramming.

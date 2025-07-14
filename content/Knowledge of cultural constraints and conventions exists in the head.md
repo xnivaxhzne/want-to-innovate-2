@@ -1,0 +1,1 @@
+They are the learned artificial restrictions on behaviours that reduce the set of likely actions, in many cases leaving one or two possibilities. 

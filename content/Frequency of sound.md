@@ -1,0 +1,4 @@
+- It is how `fast` the vibration is.
+- Measured in Hertz(Hz)
+- High frequency - High [[Pitch in music|pitch]](flute)
+- Lower frequency - Low pitch(bass drum)

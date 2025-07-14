@@ -1,0 +1,1 @@
+> The placement of elements such that edges line up along common rows or columns, or their bodies along a common centre.

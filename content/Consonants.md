@@ -1,0 +1,1 @@
+Consonant sounds which involve more contact or friction between the tongue, teeth, or lips.

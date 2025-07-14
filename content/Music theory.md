@@ -1,0 +1,3 @@
+- Music comes first before the music theory. So one doesnt need to know it to create music.
+- Just as being able to transcribe(read/write) language made it possible for people far away to "hear" conversations and stories the way the author intended, being able to transcribe music allows musicians to read and play compositions exactly as the composer intended.
+- The purpose of music theory is to explain *why* something sounded the way it did and how that sound can be made again.

@@ -1,0 +1,4 @@
+- When you handover your product or the prototype you created to your potential use, they should be able to figure out and able to use it within 30seconds.
+- It should be done without the manuals.
+- This is applicable for websites as well - [[apple's simple and elegant website for iPhone 4 in June 2010]]
+- A confused customer is a lost customer

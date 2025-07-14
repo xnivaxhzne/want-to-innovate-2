@@ -1,0 +1,4 @@
+- Gather Observations about human behaviour, processes, design or anything else.
+- Ask why to discover the reason behind it - for this you need subject knowledge - you may want to read Psychology, physics or some area of expertise
+- Then come up with idea using your insights -> it could be new idea or improvements to a system or something else.
+- the better you get at finding the reasons behind the observations, the better you will be unearthing useful insights.

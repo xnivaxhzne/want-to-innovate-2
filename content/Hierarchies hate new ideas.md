@@ -1,0 +1,4 @@
+- Most effective ideas are likely to come from the people who are actually doing the job
+- Each layer of management takes a look at it.
+- Second guesses what the person above them might say and makes appropriate adjustments in an effort not to look stupid.
+- They prioritise their own survival over the survival of the idea.

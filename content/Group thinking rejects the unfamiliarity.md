@@ -1,0 +1,1 @@
+[[When it comes to ideas, democracy doesn't work]]

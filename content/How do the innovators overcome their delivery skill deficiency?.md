@@ -1,0 +1,1 @@
+By teaming up with people who possess them.

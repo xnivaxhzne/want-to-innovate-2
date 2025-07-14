@@ -1,0 +1,4 @@
+- [[Insight is a piece of information that can inspire an Idea]]
+- [[Insight matrix - info should be unique & interesting]]
+- [[Observation(knowing what) vs insight(knowing why)]]
+- [[Data - Information - Knowledge - Wisdom pyramid]]

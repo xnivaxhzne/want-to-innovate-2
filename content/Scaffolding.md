@@ -1,0 +1,2 @@
+- **Definition:** Providing temporary support to help learners understand new concepts.
+- **Application:** Offer hints, summaries, and prompts that guide the learner through the material until they can grasp it independently.

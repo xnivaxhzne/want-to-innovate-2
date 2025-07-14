@@ -1,0 +1,1 @@
+[[Highlighting|Highlight]] the most important or relevant information so that users can quickly identify key points without being distracted by less critical details.

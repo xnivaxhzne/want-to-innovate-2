@@ -1,0 +1,1 @@
+It is focused mainly on `individual creativity in the business context` and is based on our `study of a large sample of business innovators`, including some big-name innovators.

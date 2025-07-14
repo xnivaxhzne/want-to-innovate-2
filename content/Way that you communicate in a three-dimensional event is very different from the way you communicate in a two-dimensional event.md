@@ -1,0 +1,1 @@
+In an exhibit, the drama ought to be happening around me. Most exhibits are designed as books; you see a little thing and you read about it; you see another little thing and read about it

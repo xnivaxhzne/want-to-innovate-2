@@ -1,0 +1,4 @@
+- creative people are always curious and love discovering new things and feeding their mind.
+- Their eyes are always open and minds are always questioning.
+- Curiosity leads people to keep digging until they understand the reason why something happens, If you combined this with that.
+- It leads them to thinker and ponder and question and challenge.

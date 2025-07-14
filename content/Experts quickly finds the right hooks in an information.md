@@ -1,0 +1,1 @@
+[[Distinguish what is critical from what is unimportant or irrelevant]]

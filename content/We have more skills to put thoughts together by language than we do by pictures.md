@@ -1,0 +1,3 @@
+- [[Thinking]]
+- [[Visual Representations]]
+- [[Language]]

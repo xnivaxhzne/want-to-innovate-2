@@ -1,0 +1,2 @@
+- Finding objective reality vs subjective reality using cause-and-effect analysis
+- Diff questioning techniques can be used to find the true existence of the things and arriving at their fundamental truths.

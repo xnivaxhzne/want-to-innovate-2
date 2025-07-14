@@ -1,0 +1,1 @@
+> A preference for a particular ratio of waist size to hip size in men and women.

@@ -1,0 +1,1 @@
+> The tendency to perceive objects as unchanging, despite changes in sensory input.

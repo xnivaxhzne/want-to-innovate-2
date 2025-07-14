@@ -1,0 +1,1 @@
+Those who understand the power and profitability potential of information will rule the business kingdom in the coming years, as more and more companies go into fields where the product is information.

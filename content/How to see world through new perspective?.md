@@ -1,0 +1,2 @@
+- constantly creating better questions to see that world through new eyes.
+- changing our questions can change the world.

@@ -1,0 +1,1 @@
+The instantaneous transmission of it via modems, satellites, fiber optics, etc. causes the boundaries to blur between countries.

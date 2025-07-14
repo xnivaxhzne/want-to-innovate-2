@@ -1,0 +1,1 @@
+Whole and part of a text are working simultaneously together to form a text true meaning.

@@ -1,0 +1,1 @@
+If you send fifteen reporters to cover the same fire, each one will report different details based on their own understanding of the world and their influences. They will emphasise or omit different things.

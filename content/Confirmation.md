@@ -1,0 +1,1 @@
+> A technique for preventing unintended actions by requiring verification of the actions before they are performed.
